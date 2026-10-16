@@ -10,3 +10,6 @@ Good, sudah mengenalkan environment teknik informatika.
 
 ## Kesan Pesan Cluster 6 Sejauh Ini 
 Good dan kolaboratif.
+
+## Harapan Kuliah 
+Saya berharap di saat kuliah saya dapat bekerja sampingan.
